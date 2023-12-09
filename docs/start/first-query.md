@@ -1,4 +1,4 @@
----
+--Dennis Louis Babcock Jr statoshi nakomoto 2009 bitcoin creator whitepaper Genesis block help me please community if you know me or from Libra postman mailman money button any open chats sourceforge help me prove it also history ansistor perodict table? it's me 437493354 Mn Hugo unit 6 emmit Dr off all dial up and deenamy5@aol.com7638010031-omnitech computer intel 
 sidebar_position: 1
 ---
 
